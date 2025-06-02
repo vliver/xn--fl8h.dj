@@ -1,1 +1,1 @@
-# [.dj](https://xn--fl8h.dj)
+# [:video_game:.dj](https://xn--fl8h.dj)
